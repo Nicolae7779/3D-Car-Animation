@@ -16,13 +16,13 @@
 
 ![imagine1](imagini/M3_5.png)
 
+![imagine1](imagini/M3_7.JPG)
+
 ![imagine1](imagini/M3_4.png)
 
 ![imagine1](imagini/M3_2.png)
 
 ![imagine1](imagini/M3_3.png)
-
-![imagine1](imagini/M3_7.JPG)
 
 ![imagine1](imagini/M3_8.png)
 
