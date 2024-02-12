@@ -8,7 +8,7 @@
 
 ![imagine1](imagini/M3_6.JPG)
 
-
+![imagine1](imagini/M3_9.JPG)
 
 ![imagine1](imagini/BMW_M3_10.JPG)
 
@@ -16,7 +16,7 @@
 
 ![imagine1](imagini/BMW_M3_final2.png)
 
-![imagine1](imagini/M3_9.JPG)
+
 
 ![imagine1](imagini/M3_5.png)
 
